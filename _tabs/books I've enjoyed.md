@@ -40,3 +40,7 @@ Anthony Bolton was a successful portfolio manager at Fidelity for many years. I 
 ## 10 1/2 Lessons From Experience by Paul Marshall
 
 A pocket sized investment manual, this book was a great reminder of some of the larger themes in the investment landscape.
+
+## One Up On Wall Street by Peter Lynch
+
+THE BEST book to read for someone just starting out in investments. This books comes full of personal stories, explanations, and charts. Read the entire thing in a weekend.
